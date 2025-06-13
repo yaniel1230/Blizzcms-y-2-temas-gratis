@@ -2,4 +2,4 @@ solo descargar e instalar en la descarga encontrarás todo
 
 
 
-DESCARGALO AQUI https://drive.google.com/drive/folders/1a0v4jqI7yi4FntJhwTkTMAR7xbhKig70
+DESCARGALO AQUI el blizzcms:https://drive.google.com/file/d/1b1Fr-9eXex-ecio4-nKpCG91zsclorOJ/view?usp=drivesdk
